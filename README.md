@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @DAYU-LIN
+- 👀 I’m interested in creative coding and modular synthesizer
